@@ -60,5 +60,7 @@ I would not be defeated
 
 Just like that i overcome my fear of choking
 
+## If the world doesn't respect me, i might change sides
+
 
 
